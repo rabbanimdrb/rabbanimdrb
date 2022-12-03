@@ -12,5 +12,5 @@ Here are some ideas to get you started:-->
 - 💬 Ask me about GitHub
 - 📫 How to reach me: talk2mdrabbani@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: My name in my whatsapp is Happy :smile:,I like eating out than hanging out :yum:
+- ⚡ Fun fact: My name in my WhatsApp is Happy :smile:,I like eating out than hanging out :yum:
 
